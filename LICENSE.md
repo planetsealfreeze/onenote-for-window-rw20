@@ -1,4 +1,4 @@
-# 
+# professional OneNote for Windows Module | dark-mode + folders offers the most advanced OneNote for Windows module, with dark-mode and folders. Ideal for Windows professionals.
 
 
 
